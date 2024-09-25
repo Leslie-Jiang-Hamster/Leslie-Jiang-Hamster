@@ -1,4 +1,4 @@
-Interested in Computer Science, Bioinformatics, Economics and making products that change our daily life.
+Interested in Computer Science, Bioinformatics, Economics and products that make a difference.
 
 Contact me: [My Proton Mail](mailto:Leslie_Jiang@proton.me)
 
