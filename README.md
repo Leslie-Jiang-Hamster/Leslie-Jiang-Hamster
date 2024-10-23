@@ -1,4 +1,6 @@
-Interested in Computer Science, Bioinformatics, Economics and products that make a difference.
+Interests: CS, Bioinformatics, Economics, History.
+Appreciating products that make a difference.
+I'm an OMORI fan irl.
 
 Contact me: [My Proton Mail](mailto:Leslie_Jiang@proton.me)
 
