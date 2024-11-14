@@ -2,7 +2,7 @@ Interests: CS, Bioinformatics, Economics, History, Futurology.
 
 Appreciating products that make a difference.
 
-BTW I'm an OMORI fan! sunflower suki!! XD
+BTW I'm an OMORI fan! Sunflower suki!! XD
 
 Contact me: [My Proton Mail](mailto:Leslie_Jiang@proton.me)
 
